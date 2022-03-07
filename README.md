@@ -1,0 +1,1 @@
+# Kimya-sorusu-cozme-uygulamas-
